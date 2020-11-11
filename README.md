@@ -1,1 +1,1 @@
-# Claude
+# All skin
